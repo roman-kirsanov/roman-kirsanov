@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on pure technologies!
 - 📫 How to reach me: email: kirsanov2008@gmail.com
 
-I use arch byw!
+I use arch btw!
